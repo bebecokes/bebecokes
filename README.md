@@ -6,6 +6,4 @@
 </div>
 <div align="center">
 
-*original universe by me*
-
-</div>
+*<h6>Original logo and universe by me</h6>*
